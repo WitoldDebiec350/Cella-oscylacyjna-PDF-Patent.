@@ -1,0 +1,1 @@
+# Cella-oscylacyjna-PDF-Patent.
